@@ -1,0 +1,1 @@
+# Shigemin_terakoya_file
